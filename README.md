@@ -10,7 +10,7 @@ Become a seller and add products, monitor sales, and gather customer feedback.
 <br>
 
 <br><br>
-[LinkedIn](https://www.linkedin.com/in/sarojmishray/)
+[LinkedIn](https://www.linkedin.com/in/sarojmishraa/)
 
 # About
 
